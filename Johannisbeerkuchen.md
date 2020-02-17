@@ -21,4 +21,4 @@ Die anderen Zutaten bis auf die Johannisbeeren untermischen und den Teig in eine
 
 Die Johannisbeeren darüber verteilen.
 
-bei 190°C 30min in den Backofen. DerKuchen soll klebrig sein.
+bei 190°C 30min in den Backofen. Der Kuchen soll klebrig sein.
