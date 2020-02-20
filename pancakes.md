@@ -4,13 +4,13 @@
 
 **4 kleine Portionen**
 ---
-135g Dinkelmehl
-1 TL Backpulver
-1/2 TL Salz
-2EL Zucker
-130 ml Milch
-1 großes Ei, leicht geschlagen
-2 EL Öl
+- *135g* Dinkelmehl
+- *1 TL* Backpulver
+- *1/2 TL* Salz
+- *2EL* Zucker
+- *130 ml* Milch
+- *1* großes Ei, leicht geschlagen
+- *2 EL* Öl
 ---
 
 Sift the flour, baking powder, salt and caster sugar into a large bowl. In a separate bowl or jug, lightly whisk together the milk and egg, then whisk in the melted butter.
