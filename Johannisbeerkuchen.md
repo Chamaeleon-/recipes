@@ -11,7 +11,7 @@ Obstkuchen wie in "Mit Petterson und Findus durchs ganze Jahr" beschrieben
 - *75 g* zerlassene Butter
 - *2,5 dl* Weizenmehl
 - *1 TL* Backpulver
-- *1 TL Vanillezucker*
+- *1 TL* Vanillezucker
 - *2 dl* rote Jahannisbeeren (oder andere Beeren)
 ---
 
