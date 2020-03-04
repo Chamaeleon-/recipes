@@ -5,7 +5,7 @@
 **~16 Stück**
 
 ---
-﻿- *200ml* Zucker
+- *200ml* Zucker
 - *400ml* Mehl
 - *200ml* (Soja)milch
 - *100ml* Rapsöl

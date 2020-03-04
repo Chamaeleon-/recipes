@@ -3,7 +3,7 @@
 *Suppe, vegetarisch, vegan*
 
 ---
-﻿- *40 g* Zwiebeln
+- *40 g* Zwiebeln
 - *2 EL* Sonnenblumenöl
 - *150g Spinat
 - *200 g* (Soja)Sahne

@@ -4,7 +4,7 @@
 
 ---
 # Teig
-﻿- *200 g* Mehl
+- *200 g* Mehl
 - *2 EL* Öl
 - *125 ml* Wasser
 - *1 Prise* Salz

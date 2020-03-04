@@ -3,8 +3,9 @@
 *Muffins, vegetarisch*
 
 **~16 Stück**
+
 ---
-﻿- *400 ml* Mehl
+- *400 ml* Mehl
 - *200 ml* Cornflakes
 - *100 ml* Rapsöl
 - *200 ml* Zucker

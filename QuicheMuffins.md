@@ -1,4 +1,4 @@
-﻿# QuicheMuffins bzw. Petite Quiche
+# QuicheMuffins bzw. Petite Quiche
 
 *Fleisch, Fingerfood*
 

@@ -5,7 +5,7 @@
 **~2 Portionen**
 
 ---
-﻿- *200 g* Lachsfilet
+- *200 g* Lachsfilet
 - *1/2* Zitrone Saft
 - Salz
 - *250 g* Bandnudeln

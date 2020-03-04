@@ -16,7 +16,7 @@ einfache, schnelle Gemüsepfanne, auch gut zum vorkochen.
 - *1 Becher* Schmand
 - Bulgur
 - Gemüsebrühe
--
+
 ---
 Bulgur mit Gemüsebrühe quellen lassen.
 Gemüse in einer tiefen Pfanne oder Wok anbraten, Tomaten dazugeben, würzen, dann Bulgur und Schmand unterühren.
